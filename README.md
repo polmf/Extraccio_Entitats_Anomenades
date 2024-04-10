@@ -1,0 +1,1 @@
+# Extraccio_Entitats_Anomenades
